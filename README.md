@@ -1,2 +1,1 @@
-# rsschool-cv
-My CV
+https://Serazhok.github.io/rsschool-cv/cv
