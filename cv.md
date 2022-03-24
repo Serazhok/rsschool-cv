@@ -1,3 +1,3 @@
-Telegram : Rab_bojii
+Telegram : @Rab_bojii
 
 Sergey Kikot'
